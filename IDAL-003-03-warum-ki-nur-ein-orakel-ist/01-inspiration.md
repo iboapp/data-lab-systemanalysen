@@ -1,0 +1,1 @@
+[Nancy Cartwright: Alles Lüge? | DIE ZEIT](https://www.zeit.de/2026/35/nancy-cartwright-wissenschaft-philosophie-gesetze-verlaesslichkeit) 
