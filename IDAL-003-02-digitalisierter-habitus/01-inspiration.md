@@ -1,0 +1,1 @@
+[Das Sommerinterview - Das Volk fragt, Lisa Eckhart antwortet\!](https://www.youtube.com/watch?v=KqxgsbO8yKQ)

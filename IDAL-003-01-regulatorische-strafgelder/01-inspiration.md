@@ -1,1 +1,1 @@
-https://www.zeit.de/digital/2026-07/eu-verhaengt-890-millionen-euro-strafe-gegen-google-gxe
+[EU verhängt 890 Millionen Euro Strafe gegen Google | DIE ZEIT](https://www.zeit.de/digital/2026-07/eu-verhaengt-890-millionen-euro-strafe-gegen-google-gxe) 
