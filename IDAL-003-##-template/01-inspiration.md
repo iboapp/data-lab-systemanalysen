@@ -1,0 +1,1 @@
+[Google Translate vs. DeepL: Was Sie bis 2026 wissen sollten](https://de.smartling.com/blog/google-translate-vs-deepl) 
