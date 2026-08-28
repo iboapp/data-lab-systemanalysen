@@ -1,0 +1,1 @@
+12.9.2026 [Der Abrechnungsschock oder die europäische KI-Alternative?](https://youtu.be/SA_fmlCg2xo)
